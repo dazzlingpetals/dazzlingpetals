@@ -1,14 +1,17 @@
 hihi!!
-    - i'm vani, you can also call me vil!!
+  
+    - i'm vani, you can also call me vil!
     - minor
     - kinda shy at first, pls i swear im nice
-    - i excessively use brainrot,,
+    - i excessively use brainrot
     
-interests!!
-    - **enstars**
-    - prsk
-    - pokemon (**pokespe mostly**)
+my interests!!
+   
+    - enstars
+    - pjsk
+    - pkmn (pokespe)
     - hi3
+    - ddlc
     - twst
-    - crk/crob
-**Ty for reading ^^**  
+
+**Ty for reading!!! ^^**  
