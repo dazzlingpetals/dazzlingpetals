@@ -4,14 +4,6 @@ hihi!!
     - minor
     - kinda shy at first, pls i swear im nice
     - i excessively use brainrot
-    
-my interests!!
-   
-    - enstars
-    - pjsk
-    - pkmn (pokespe)
-    - hi3
-    - ddlc
-    - twst
+    - i donr usually int first
 
-**Ty for reading!!! ^^**  
+**proship/darkship age gap ppl gtfo^^**
