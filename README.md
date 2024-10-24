@@ -1,9 +1,8 @@
 hihi!!
   
-    - i'm vani, you can also call me vil!
-    - minor
-    - kinda shy at first, pls i swear im nice
-    - i excessively use brainrot
-    - i donr usually int first
+im vani/vila
+mostly afk
+indonesian (pls get me out of if this country)
+i rarely int first (w2i)
 
-**proship/darkship age gap ppl gtfo^^**
+**proship/darkship age gap ppl gtfo ur disgusting ^^**
