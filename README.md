@@ -9,4 +9,4 @@
 
 > i rarely int first (w2i)
 
-**proship/darkship age gap ppl gtfo ur disgusting ^^**
+**basic dni, zionists gtfo ^^**
