@@ -8,3 +8,5 @@
 
 🔴| Busy / Not feeling well
 
+    Arashi, Ritsu, n KohakuP!! >< Often in enstars area
+
