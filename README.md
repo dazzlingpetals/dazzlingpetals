@@ -9,4 +9,4 @@
 
 > i rarely int first (w2i)
 
-**basic dni, zionists gtfo ^^**
+**basic dni; zionists, proship gtfo ^^**
