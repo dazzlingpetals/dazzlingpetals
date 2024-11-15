@@ -1,10 +1,10 @@
-     "Budding Amber Blossoms.."
+     " > VANI'S SPACE... <"
   
-**basic dni; zionists, proship gtfo ^^**
+**basic dni; zionists, proship getout ^^**
 
 🟢| C+H !! idm :33 / Looking for a friend
 
-🌙| AFK / Stalking / Waiting for a friend
+🌙| AFK / Waiting for a friend / Playing Games
 
 🔴| Busy / Not feeling well
 
