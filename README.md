@@ -1,12 +1,8 @@
      " > VANI'S SPACE... < "
   
-**basic dni; zionists, proship getout ^^**
+**basic dni; zionists, proship, heavy nsfw getout ^^**
 
-🟢| C+H !! idm :33 / Looking for a friend
-
-🌙| AFK / Waiting for a friend / Playing Games
-
-🔴| Busy / Not feeling well
+hihi!! i love making new friends, so don't hesitate to int w me, im prolly more scared of you than you sre scared of me,,
 
     Arashi, Ritsu, n KohakuP!! >< Often in enstars area
     
